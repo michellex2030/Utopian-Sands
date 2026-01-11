@@ -1,7 +1,7 @@
 # Utopian-Sands
 Short personality game with alternate dnd alignment endings
 
-wow u actually clicked in
+wow uh
 
 well theres not much here
 
