@@ -9,6 +9,8 @@ my programming skills aren't good enough to spend time figuring out github's rea
 
 just not this one
 
+go to that big green button and download the zip file, unzip and yeah yada yada yada
+
 haha
 
 thanx for playing
